@@ -1,4 +1,4 @@
-# ROCKPAPERSCICCORS
+# ROCK PAPER SCICCORS
 
 *Master Decision-Making, Elevate Play, Unleash Innovation*
 
